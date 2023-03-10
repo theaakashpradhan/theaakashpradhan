@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **a21.pradhan@gmail.com**
 
-- ⚡ Fun fact **The only permanent thing is CHANGE.**
+- ⚡ **The only permanent thing is CHANGE.** ⚡ 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
