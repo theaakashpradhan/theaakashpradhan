@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **theaakashpradhan@gmail.com**
 
-- Where 'HELLO WORLD' **is just the beginning of a lifelong conversation.**
+- Where 'Hello World' is just **The beginning of a lifelong conversation.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
